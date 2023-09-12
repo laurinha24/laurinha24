@@ -1,0 +1,5 @@
+- 👋 ola, sou @laurinha24
+- 👀 estudo na escola rui barbosa
+- 🌱 estou no primeiro ano do encino medio
+- 🥰 estou aqui para aprender mais sobre a tecnologia
+- 📫 tecnolagia
